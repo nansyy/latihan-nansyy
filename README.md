@@ -1,2 +1,3 @@
 # latihan-nansyy
-Repository untuk latihan
+Clemensia Natalia Peni Welan - Nansy
+215314185
